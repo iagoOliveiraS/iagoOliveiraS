@@ -1,4 +1,4 @@
-### Olá! Eu sou o Iago Oliveira 😊
+### Olá! Eu sou o Iago Oliveira 
 
 Estou estudando informática no instituto federal sul-rio-grandense.👨🏻‍💻
 
